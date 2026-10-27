@@ -1,5 +1,5 @@
 # DevOps-Proj01
-Kasitinat Wongsri
+Kasitinat Wongsri/p
 Narueseth Manatakul
 thanakit chonpanyasakul
 Teerathep Intawong
