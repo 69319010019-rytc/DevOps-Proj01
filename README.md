@@ -2,4 +2,4 @@
 Kasitinat Wongsri
 Narueseth Manatakul
 thanakit chonpanyasakul
-Teerathep intawong
+Teerathep Intawong
